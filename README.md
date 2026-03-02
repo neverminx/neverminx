@@ -4,6 +4,8 @@ raven ᶻ 𝗓 𐰁 octavia ᶻ 𝗓 𐰁 rouge ⏾ kinnie ⏾
 
 ▶︎ •၊၊||၊|။||||| 0:10 Backstabber-Kesha
 
+i like crazy girls ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
+
 <!--
 **ch1ld0fsat3n/ch1ld0fsat3n** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
