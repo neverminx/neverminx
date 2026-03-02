@@ -1,10 +1,10 @@
-## Minx/Raven
+## ꪑ꠸ꪀ᥊/᥅ꪖꪜꫀꪀ
 
-raven ᶻ 𝗓 𐰁 octavia ᶻ 𝗓 𐰁 rouge ⏾ kinnie ⏾                                                                                                       
+ʀᴀᴠᴇɴ ᶻ 𝗓 𐰁 ᴏᴄᴛᴀᴠɪᴀ ᶻ 𝗓 𐰁 ʀᴏᴜɢᴇ ⏾ ᴋɪɴɴɪᴇ ⏾                                                                                                       
 
-▶︎ •၊၊||၊|။||||| 0:10 Backstabber-Kesha
+▶︎ •၊၊||၊|။||||| 0:10 🅱🅰🅲🅺🆂🆃🅰🅱🅱🅴🆁-🅺🅴🆂🅷🅰
 
-i like crazy girls ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
+ɪ ʟɪᴋᴇ ᴄʀᴀᴢʏ ɢɪʀʟꜱ ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
 <!--
 **ch1ld0fsat3n/ch1ld0fsat3n** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
